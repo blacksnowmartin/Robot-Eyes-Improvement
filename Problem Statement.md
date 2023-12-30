@@ -1,0 +1,1 @@
+In one of videos the most realistic human bot builded in 2023 Sophia was engaged in a dating show , and during the video I noted that her eye expressions were quite weird compared to humans she is supposed to emulate.
